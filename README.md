@@ -8,3 +8,5 @@ He wore a tight fitting army dress with red and blue stripes with a star mark in
 Round shield made of vibranium coloured in the similar fasion as the dress.
 # The plan
 This time his plan was, black widow and he would stay on the ground and protect the civilians from the chitauri army. Iron man and thor will find a way to close the portal and capture loki. Hulk will smash the enemies.
+# Best friend
+Bucky barnes 
